@@ -1,1 +1,1 @@
-The only easy day was yesterday
+The only easy day was yesterday.
